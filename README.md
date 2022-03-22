@@ -1,0 +1,2 @@
+- 👋 Hi, we are @creacubed
+- 👀 We are interested  in AI powered smart gadgets
